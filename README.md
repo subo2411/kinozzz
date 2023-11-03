@@ -1,1 +1,1 @@
-# kinozzz
+# kino
